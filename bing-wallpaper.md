@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-19 | [The gates of the Royal Palace (Dar al-Makhzen) in Fez, Morocco (© Adam Smigielski/Getty Images)](https://cn.bing.com/th?id=OHR.IslamicArt_EN-US8618450174_UHD.jpg) 
+
 2022-11-17 | [Cliff dwellings in Mesa Verde National Park, Colorado (© Brad McGinley Photography/Getty Images)](https://cn.bing.com/th?id=OHR.Unesco50_EN-US1537915198_UHD.jpg) 
 
 2022-11-15 | [Ruins of the medieval castle of the Knights of St. John above the village of Chorio, Halki Island, Greece (© Massimo Ripani/eStock Photo)](https://cn.bing.com/th?id=OHR.SanGiovanni_EN-US1675492729_UHD.jpg) 
