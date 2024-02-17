@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-18 | [The Alvin Ailey American Dance Theater rehearsing 'Uptown,' 2009, New York (© STAN HONDA/AFP via Getty Images)](https://cn.bing.com/th?id=OHR.AileyUptown_EN-US7790191198_UHD.jpg) 
+
 2024-02-16 | [Hippopotamus mother and calf, South Luangwa National Park, Zambia (© Nature Picture Library/Alamy)](https://cn.bing.com/th?id=OHR.HippopotamusDay_EN-US7629909300_UHD.jpg) 
 
 2024-02-15 | [Red-crowned crane bowing to his mate in Hokkaido, Japan (© Steve Bloom Images/Alamy)](https://cn.bing.com/th?id=OHR.BowingCrane_EN-US7534977512_UHD.jpg) 
